@@ -12,14 +12,7 @@
 
 > 💞️ I’m looking to collaborate on ...  
 
-> 📫 How to reach me ...
-
-
-<img src="https://static3.thegamerimages.com/wordpress/wp-content/uploads/2019/07/Borderlands-2-Tiny-Tina-Eye-Glitch.jpg?q=50&fit=crop&w=740&h=370" height="200px;"></img>
-
-Yeah, sorry I'm still doing that thing where I don't even have time to sleep properly.  
-Hehe, I'm keeping myself busy, so I cannot currently collaborate on anything.  
-No worries though, I love it. Have a wonderful day!
+[![@andrasdenes's Holopin board](https://holopin.me/andrasdenes)](https://holopin.io/@andrasdenes)
 
 
 <!---
