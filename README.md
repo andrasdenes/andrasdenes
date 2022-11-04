@@ -1,6 +1,6 @@
 Hello there! 🧔
 
-As long as this is empty, just look at my [https://holopin.io(Holopins)]
+As long as this is empty, just look at my [Holopin](https://holopin.io)s:
 
 [![@andrasdenes's Holopin board](https://holopin.me/andrasdenes)](https://holopin.io/@andrasdenes)
 
