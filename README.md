@@ -1,6 +1,8 @@
 Hello there! 🧔
 
-As long as this is empty, just look at my [Holopin](https://holopin.io)s:
+I'm working on a product, so my freetime is not free lol.
+
+Look at my [Holopin](https://holopin.io)s:
 
 [![@andrasdenes's Holopin board](https://holopin.me/andrasdenes)](https://holopin.io/@andrasdenes)
 
