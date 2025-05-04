@@ -1,6 +1,6 @@
 Hello there! 🧔
 
-I'm working on a product, so my freetime is not free lol.
+I'm working on a few products.
 
 Look at my [Holopin](https://holopin.io)s:
 
