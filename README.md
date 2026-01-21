@@ -1,7 +1,7 @@
 <span style="width:200px;">
 <span>
 
-  ![](https://i.imgur.com/XOeeXyQ.gif)
+  ![](https://i.giphy.com/xTiIzJSKB4l7xTouE8.webp)
 
 </span>
 <span>
