@@ -6,7 +6,7 @@
 </span>
 <span>
 
-  ![](https://i.giphy.com/7JC7bCJJGj44aBwB8p.webp)
+  ![](https://i.giphy.com/8JTFsZmnTR1Rs1JFVP.webp)
 
 </span>
 </span>
